@@ -1,8 +1,8 @@
 # PRODUTIVIDADE
 Dicas de produtividade
 
-
-
+SE VOCÊ TIVESSE UM ATAQUE DO CORAÇÃO E PUDESSE TRABALHAR SÓ DUAS HORAS POR DIA, NO QUE VOCÊ TRABALHARIA?
+  PEGA UM PEDAÇO DE PAPEL E ANOTA
 
 Você está sendo produtivo ou ativo?
   - Evitar atividades que tem a aparência de estudo e trabalho (que é uma forma sofisticada de procrastinação)
